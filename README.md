@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil 💜 Isadora Farias 👩‍💻
+## Bem-vindo(a) ao meu perfil 💜 Isadora Farias 👩🏻‍💻
 
  <div>
   <a href="https://github.com/Isadora-farias  ">
