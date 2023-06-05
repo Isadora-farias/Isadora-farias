@@ -1,4 +1,4 @@
-## Olá, sou a Isadora Farias 👩🏻‍💻💜
+## Olá, sou a Isadora Farias 👩🏻‍💻💜🌱
 
  <div>
   <a href="https://github.com/Isadora-farias  ">
